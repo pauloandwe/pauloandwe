@@ -5,4 +5,5 @@
 - Faço progamaçâo faz um tempo ja, pois meu pai já foi professor e eu gosto bastante
 - eu gosto de sair e curtir, mas todos tem muito o que descobrir sobre mim
 - Gosto de pensar no futuro como se fosse no presente, pensando só no meu melhor
-- Sou um cara que nao aceito nada menos do que meu melhor
+- Sou um cara que nao aceito nada menos do que meu melhor 🥷🏼❤
+
